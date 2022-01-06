@@ -5,6 +5,6 @@
 
 - 🌱 I’m currently learning full stack development at Boise CodeWorks.
 - 📫 How to reach me: You can reach me at Taylorberry019@gmail.com or www.linkedin.com/in/taylormberry 
-- ⚡ Fun fact: I enjoy camping, hunting, fishing, exercising, and being outdoors.  I also love NCAA and NFL football.  Go Ducks, and Go Bengals!  I also enjoy trading stocks and learning more about Crypto.
+- ⚡ Fun fact: I enjoy camping, hunting, fishing, exercising, and pretty much all activities in the outdoors with my dog Arya.  I also love NCAA and NFL football.  Go Ducks, and Go Bengals!  I also enjoy trading stocks and learning more about Crypto.
 
 
