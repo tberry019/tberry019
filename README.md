@@ -4,7 +4,8 @@
   I learned about all the opportunities locally and nationally in the tech industry and fell in love with all the creativeness and openess the field has to offer.  I am a Certified ScrumMaster and I am enjoying everything I am learning at Boise CodeWorks. 
 
 - 🌱 I’m currently learning full stack development at Boise CodeWorks.
-- 📫 How to reach me: You can reach me at Taylorberry019@gmail.com or www.linkedin.com/in/taylormberry 
+- 📫 You can email me at Taylorberry019@gmail.com or
+- 💼 You can visit my LinkedIn at www.linkedin.com/in/taylormberry 
 - ⚡ Fun fact: I enjoy camping, hunting, fishing, exercising, and pretty much all activities in the outdoors with my dog Arya.  I also love NCAA and NFL football.  Go Ducks, and Go Bengals!  I also enjoy trading stocks and learning more about Crypto.
 
 
